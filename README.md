@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kitcatalina
-- 👀 I’m interested in Computer Science, Engineering and Chess
+- 👀 I’m interested in Computer Science, Engineering, Chess and Astronomy (Jupiter and Venus in particular)
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on Science, Space and Game Projects
 - 📫 How to reach me @KitCatalinaPers (Twitter), @lesbineering (tumblr, personal) 
